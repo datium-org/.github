@@ -1,3 +1,3 @@
 # Datium
 
-**🤫🤫. Cool things coming soon...**
+**Cool things coming soon... 🤫🤫**
